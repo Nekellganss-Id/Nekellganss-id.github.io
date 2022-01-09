@@ -1,1 +1,0 @@
-# Nekellganss-id.github.io
